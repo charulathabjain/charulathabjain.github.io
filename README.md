@@ -2,11 +2,12 @@
 - 👋 Charulatha Jain | India 
 - 🚗 Automotive Engineer by profession
 - 🎓 BE | I&CE | Pursuing MA in Psychology
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on diversified topics
   - Software Engineering
   - Psychology (specialized in counselling)
   - Management Topics
+  - Embedded System Design
   - Cultural topics
+  - Publick Speaking, Coching Students, Customized Hand written Gift
 - 📫 charulathajain25@gmail.com /
 - IG : @charulathajain
-

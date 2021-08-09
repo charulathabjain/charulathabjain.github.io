@@ -8,6 +8,6 @@
   - Management Topics
   - Embedded System Design
   - Cultural topics
-  - Publick Speaking, Coching Students, Customized Hand written Gift
+  - Public Speaking, Coching , Mentoring, Customized Hand written Gifts
 - 📫 charulathajain25@gmail.com /
-- IG : @charulathajain
+- IG : @charulathajain / @penpalsglow / @mendingthought
